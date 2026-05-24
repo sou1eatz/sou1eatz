@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/7f8e8d52-3ace-426e-97c9-4021d0329279" />
+
 
 <!--
 **sou1eatz/sou1eatz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
