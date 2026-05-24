@@ -1,4 +1,4 @@
-<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/7f8e8d52-3ace-426e-97c9-4021d0329279" />
+https://www.tumblr.com/soul-dwelling/65864019995/n3rdchampion-justin-vs-giriko
 
 
 <!--
