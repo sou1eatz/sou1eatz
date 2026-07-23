@@ -7,7 +7,9 @@ w.i.p
 .....
 ............
 ...............
-<p align="left"> texttt
+
+
+
 <p align="right">
  texttt <img width="457" height="457" alt="image" src="https://github.com/user-attachments/assets/02adff00-79ab-4537-82c8-46d08306a31a" /> 
 
