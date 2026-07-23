@@ -9,7 +9,7 @@ w.i.p
 ...............
 
 <p align="right">
-<img width="457" height="457" alt="image" src="https://github.com/user-attachments/assets/02adff00-79ab-4537-82c8-46d08306a31a" />
+<img width="457" height="457" alt="image" src="https://github.com/user-attachments/assets/02adff00-79ab-4537-82c8-46d08306a31a" />  textttt
 
 **sou1eatz/sou1eatz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
