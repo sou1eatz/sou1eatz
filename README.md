@@ -3,6 +3,7 @@
 <p align="center">
 <img width="700" height="740" alt="image" src="https://github.com/user-attachments/assets/3631a7e9-0bed-47b1-ba91-38c2db23b02a" />
 <p align="center">
+ 
   :j_01_white_harp:   ˙  ..  ᴄᴀʟʟ ᴍᴇ ...   ʏᴀʀɪ  ᴏʀ  ʏᴀʀʙᴇᴀʀ
 15 ʏᴏ  ˚   ˚  :01_white:   sʜᴇ  /  ʜᴇʀ  ˙˙˙  :001_pinkwhitepaws: 
    :001_black_phone:   ˋ  ˋ ᴋᴏɢᴀ  +  ʏᴏɪᴄʜɪ ᴋɪɴ   • :2ablackbow:
