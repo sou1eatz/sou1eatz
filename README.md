@@ -5,7 +5,7 @@
 <p align="center">
  
   :j_01_white_harp:   ˙  ..  ᴄᴀʟʟ ᴍᴇ ...   ʏᴀʀɪ  ᴏʀ  ʏᴀʀʙᴇᴀʀ
-15 ʏᴏ  ˚   ˚  :01_white:   sʜᴇ  /  ʜᴇʀ  ˙˙˙  :001_pinkwhitepaws: 
+            15 ʏᴏ  ˚   ˚  :01_white:   sʜᴇ  /  ʜᴇʀ  ˙˙˙  :001_pinkwhitepaws: 
    :001_black_phone:   ˋ  ˋ ᴋᴏɢᴀ  +  ʏᴏɪᴄʜɪ ᴋɪɴ   • :2ablackbow:
   ˚  ˙  ʙɪ  ˎ ˎ  ᴄ+ʜ  :ᴘ  ⊰ ᴅɴᴄ ᴏʀ ɪɴsᴘᴏ  ! :SH_WhiteCat: 
 <p align="center">
